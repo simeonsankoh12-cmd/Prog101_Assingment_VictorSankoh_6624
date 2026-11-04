@@ -1,2 +1,2 @@
-# Prog101_Assingment_VictorSankoh_6624
+# Prog101_Assingment1_VictorSankoh_6624
 
